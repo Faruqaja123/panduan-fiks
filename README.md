@@ -1,2 +1,2 @@
 # panduan-fiks
-dsgrgrewgggwegwegewsdv
+ Panduan aplikasi tracer-study
